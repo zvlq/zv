@@ -2,4 +2,4 @@
 
 **Timezone:** AEST (GMT+10) 🌏  
 
-**Games:** Blooket & Brawl Stars 👑💵
+Blooket & Brawl Stars 👑💵
